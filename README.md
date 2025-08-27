@@ -1,0 +1,1 @@
+# Shape-Blaster-Privacy-Policy
